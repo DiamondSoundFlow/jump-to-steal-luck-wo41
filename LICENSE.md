@@ -1,4 +1,4 @@
-
+Experience jump to steal lucky blocks like never before with jump to steal lucky blocks no-ban Script, the #1 Script. Includes silent aim and speed
 
 
 
